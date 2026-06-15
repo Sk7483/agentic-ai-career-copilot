@@ -159,7 +159,7 @@ Artificial Intelligence & Data Science Engineer
 
 GitHub: https://github.com/Sk7483
 
-LinkedIn: Add Your LinkedIn Profile Link
+LinkedIn: (https://www.linkedin.com/in/mallikarjun7483/)
 
 ## ⭐ Support
 
